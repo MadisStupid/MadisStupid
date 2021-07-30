@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MadisStupid
 - 👀 I’m interested writing, playing instruments, and gaming
-- 🌱 I’m currently marching band, how to stop creative block, and more
+- 🌱 I’m currently learning marching band, how to stop creative block, and more
 - 💞️ I’m looking to collaborate on ...
 - 📫 Discord: ✨Madison✨#7384 
 
